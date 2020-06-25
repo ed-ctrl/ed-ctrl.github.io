@@ -1,1 +1,5 @@
-A website for my favourite character is currently being built here!
+## How would you describe Horst Tappert?
+unable to distinguish from Derrick character
+old Bundesrepublik
+no private life
+almost
